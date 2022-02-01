@@ -1,1 +1,1 @@
-#Esta página trata de los mamiferos marinos
+Esta página trata de los mamiferos marinos
